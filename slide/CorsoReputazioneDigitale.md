@@ -206,7 +206,21 @@ E se nei 15 minuti sarai descritto come un pedofilo?
 
 E sei tuoi 15 minuti sbotti in diretta nazionale?
 
-"Le fettine di vitello non ti vanno bene?"
+---
+
+## Ivano Monzani
+
+![center](img/ivano%20monzani.jpg)
+
+Diventato un meme per un'espressione fatta durante un concerto
+
+---
+
+## "Le fettine di vitello non ti vanno bene?"
+
+![center width:700px](img/le%20fettine%20di%20vitello.jpg)
+
+Una signora urla e bestemmia ad un incrocio chiedendo a qualcuno al telefono se "Le fettine di vitello non ti vanno bene". Il video si è diffuso in rete con tanto di articoli su riviste come Wired.
 
 ---
 
